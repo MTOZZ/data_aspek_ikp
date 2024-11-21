@@ -1,0 +1,1 @@
+# data_aspek_ikp
